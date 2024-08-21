@@ -1,3 +1,9 @@
+bro, thank you for the excelent ccno encor article! coild you please share tou anki flashcards with me? im the same regarding nitrs and anii save me when i take the ccna. thx in advance!
+best regards,
+leandro
+leandro.mendes@gmail.com 
+
+
 # CCNP ENCOR Study :computer: :desktop_computer: :floppy_disk:
 
 - [CCNP ENCOR Study :computer: :desktop_computer: :floppy_disk:](#ccnp-encor-study-computer-desktop_computer-floppy_disk)
